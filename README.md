@@ -15,3 +15,7 @@ Ce qui metta tragiquement fin à la carriere de choco le cacao.
 Il a alors décidé de reprendre sa vie en main en sortant en boite tous les week-end et en fumant 3 bedo tous les soirs.
 C'est ainsi que son histoire s'acheva tragiquement à l'âge de 30 ans. Mais bien entendu, il lui restait tout de même quelques histoires à vivre avant
 sa triste fin comme la découverte d'un champ de frite, d'un éléphant rose et d'une super-patate avec une voix en or.
+
+Des hommes ont décidé que leurs pouvoirs ultimes résidaient dans la consommation massive de boules de chocolat. Soudain, la ville a été envahie par une armée de marmottes chocolatées géantes, déterminées à récupérer leurs précieuses réserves. Les hommes se sont retrouvés dans une bataille épiquement absurde, armés de cure-dents et de rires incontrôlables.
+
+Les festivals sucrés se multiplièrent, attirant des foules avides de rires et de friandises. Choco devint une légende, son humour sucré enchantant petits et grands. Son stand devint le lieu incontournable où les éclats de rire se mêlaient aux saveurs exquises, créant une tradition sucrée inoubliable.
